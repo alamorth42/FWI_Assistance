@@ -1,2 +1,2 @@
 # FWI_Assistance
-FWI Assistance
+For an assistance contact fripwestindies@gmail.com
